@@ -43,4 +43,4 @@ For more high-quality mockups and updates, visit our official website: [MockupDa
 
 ---
 
-Bring your designs to life with our [iPhone 14 Mockups] today!
+Bring your designs to life with our iPhone 14 Mockups today!
